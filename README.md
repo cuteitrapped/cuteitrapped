@@ -1,6 +1,6 @@
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/0ab696e3-a06a-4a74-865f-2ec46941c93e" />
 
-<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/adaf0f57-9866-46d9-8c84-ebe82c85d396" /> <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/82d411bc-0e37-47ce-9118-3364bebe184d" /> isaac     ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊      he/she/any    ‧₊˚♡   artist / writer 𑣲₍ ᐢ. .ᐢ₎ itrapped kin
+<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/adaf0f57-9866-46d9-8c84-ebe82c85d396" /> <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/82d411bc-0e37-47ce-9118-3364bebe184d" /> isaac     ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊      he/she/any    ‧₊˚♡   artist / writer 𑣲₍ ᐢ. .ᐢ₎ itrapped kin <img width="47" height="37" alt="Image" src="https://github.com/user-attachments/assets/d71cbfed-fc44-4658-970b-7d73f492a1f0" />
 
 <img width="27" height="21" alt="Image" src="https://github.com/user-attachments/assets/d8e9a42b-cebf-4ffb-aa5a-9d9538c3b782" /> <img width="500" height="100" alt="Image" src="https://github.com/user-attachments/assets/e44ab811-ef23-4b58-9a1a-65f2410e95cd" /> <img width="37" height="21" alt="image" src="https://github.com/user-attachments/assets/84fc0311-a8a9-409c-ba51-587ff958165b" />
 
