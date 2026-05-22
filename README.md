@@ -25,4 +25,4 @@ Just stop talking to Yuri.
  
 Play with me instead.
 
-It's all I have..."
+It's all I have..." <img width="40" height="41" alt="Image" src="https://github.com/user-attachments/assets/37a235b0-c62c-4154-b2a9-b2e7f34dbccc" />
