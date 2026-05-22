@@ -25,3 +25,5 @@ Just stop talking to `Yuri.`
 Play with `me` instead.
 
 It's all I have..." <img width="40" height="41" alt="Image" src="https://github.com/user-attachments/assets/37a235b0-c62c-4154-b2a9-b2e7f34dbccc" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xtvejpxkepw4s2cqkfwbumtcum&cover_image=true&theme=default&show_offline=false&background_color=364d63&interchange=false&profanity=false&hide_remaster=false&bar_color=feb4df)](https://github.com/kittinan/spotify-github-profile)
