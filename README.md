@@ -4,7 +4,7 @@
 
 <img width="27" height="21" alt="Image" src="https://github.com/user-attachments/assets/d8e9a42b-cebf-4ffb-aa5a-9d9538c3b782" /> <img width="500" height="100" alt="Image" src="https://github.com/user-attachments/assets/e44ab811-ef23-4b58-9a1a-65f2410e95cd" /> <img width="37" height="21" alt="image" src="https://github.com/user-attachments/assets/84fc0311-a8a9-409c-ba51-587ff958165b" />
 
-<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/77b12647-83aa-494f-b2c7-9b1f3b7ef4df" />     [my strawpage](https://icetrapped.straw.page/) <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/aa39702b-4285-4bee-b7f0-e48bc4057c1c" /> ִֶָ  ִֶ་༘࿐  i ⁠♡ s  . `child psychology`
+<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/77b12647-83aa-494f-b2c7-9b1f3b7ef4df" />     [my strawpage](https://icetrapped.straw.page/) <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/aa39702b-4285-4bee-b7f0-e48bc4057c1c" /> ִֶָ  ִֶ་༘࿐  i ⁠♡ s  . `child psychology` <img width="300" height="400" alt="Image" src="https://github.com/user-attachments/assets/7599a715-005d-48fb-b255-eeb79ff7b043" />
 
  <img width="50" height="70" alt="Image" src="https://github.com/user-attachments/assets/6f4e59ee-4233-4e1c-aac6-09c62aba6e97" /> "You don't hate me, do you?
 
