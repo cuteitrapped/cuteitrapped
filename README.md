@@ -10,7 +10,7 @@
 
     Do you hate me?
 
-Do you want to make me go home crying?
+`D`o you want to make me go hom`e` crying?
 
 The club is the only place `I` feel safe.
  
