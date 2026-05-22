@@ -12,16 +12,16 @@
 
 Do you want to make me go home crying?
 
-The club is the only place I feel safe.
+The club is the only place `I` feel safe.
  
-Don't ruin that for me.
+Don't ruin `t`hat for me.
 
-Don't ruin it.
+Don't `r`uin it.
 
-Please.
+Ple`a`se.
 
-Just stop talking to Yuri.
+Just stop talking to `Yuri.`
  
-Play with me instead.
+`P`lay with `me` instead.
 
 It's all I have..." <img width="40" height="41" alt="Image" src="https://github.com/user-attachments/assets/37a235b0-c62c-4154-b2a9-b2e7f34dbccc" />
