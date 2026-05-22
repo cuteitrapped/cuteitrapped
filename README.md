@@ -8,7 +8,7 @@
 
  <img width="50" height="70" alt="Image" src="https://github.com/user-attachments/assets/6f4e59ee-4233-4e1c-aac6-09c62aba6e97" /> "You don't hate me, do you?
 
-    Do you hate me?
+> Do you hate me?
 
 `D`o you want to make me go hom`e` crying?
 
