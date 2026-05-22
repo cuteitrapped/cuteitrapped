@@ -2,7 +2,8 @@
 
 <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/82d411bc-0e37-47ce-9118-3364bebe184d" /> isaac     ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊      he/she/any    ‧₊˚♡   artist / writer 𑣲₍ ᐢ. .ᐢ₎ itrapped kin
 
-<img width="500" height="100" alt="Image" src="https://github.com/user-attachments/assets/e44ab811-ef23-4b58-9a1a-65f2410e95cd" />
+<img width="500" height="100" alt="Image" src="https://github.com/user-attachments/assets/e44ab811-ef23-4b58-9a1a-65f2410e95cd" /> <img width="27" height="21" alt="image" src="https://github.com/user-attachments/assets/84fc0311-a8a9-409c-ba51-587ff958165b" />
+
 
 [my strawpage](https://icetrapped.straw.page/) <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/aa39702b-4285-4bee-b7f0-e48bc4057c1c" /> ִֶָ .𓂃 ࣪ ִֶ་༘࿐  i ⁠♡ s
 
