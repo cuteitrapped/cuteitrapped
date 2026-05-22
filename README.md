@@ -10,18 +10,18 @@
 
 > Do you hate me?
 
-`D`o you want to make me go hom`e` crying?
+Do you want to make me go home crying?
 
 The club is the only place `I` feel safe.
  
-Don't ruin `t`hat for me.
+Don't ruin that for me.
 
-Don't `r`uin it.
+Don't ruin it.
 
-Ple`a`se.
+Please.
 
 Just stop talking to `Yuri.`
  
-`P`lay with `me` instead.
+Play with `me` instead.
 
 It's all I have..." <img width="40" height="41" alt="Image" src="https://github.com/user-attachments/assets/37a235b0-c62c-4154-b2a9-b2e7f34dbccc" />
