@@ -1,4 +1,5 @@
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/0ab696e3-a06a-4a74-865f-2ec46941c93e" />
 <img width="1000" height="155" alt="Image" src="https://github.com/user-attachments/assets/e7298f34-6429-4a33-ac3f-5b50838165bd" />
 
-> $\color{#d47fdb}{itrapped}$ $\color{#d47fdb}{is\ tuff}$  <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/aa39702b-4285-4bee-b7f0-e48bc4057c1c" /> [my strawpage](https://icetrapped.straw.page/)
+　  ️ 　 　 <img width="47" height="37" alt="Image" src="https://github.com/user-attachments/assets/d71cbfed-fc44-4658-970b-7d73f492a1f0" /> <img width="120" height="130" alt="image" src="https://github.com/user-attachments/assets/95cfd8d0-949a-4859-8892-aacf19e0c974" />　  ️ 　 　  ️   ️   ️  　  ️ $\color{#d47fdb}{itrapped}$ $\color{#d47fdb}{is\ tuff}$  <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/aa39702b-4285-4bee-b7f0-e48bc4057c1c" /> [my strawpage](https://icetrapped.straw.page/)  　  ️ 　 　  ️   ️ 　 　  ️  　  ️<img width="80" height="140" alt="image" src="https://github.com/user-attachments/assets/15ef6c6f-a8af-4764-bf1b-92af78619280" />
+
