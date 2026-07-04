@@ -2,7 +2,7 @@
 <img width="1000" height="155" alt="Image" src="https://github.com/user-attachments/assets/e7298f34-6429-4a33-ac3f-5b50838165bd" />
 
 
-　  ️ 　 　 <img width="47" height="37" alt="Image" src="https://github.com/user-attachments/assets/d71cbfed-fc44-4658-970b-7d73f492a1f0" /> <img width="120" height="130" alt="image" src="https://github.com/user-attachments/assets/95cfd8d0-949a-4859-8892-aacf19e0c974" />　
+　  ️ 　 <img width="47" height="37" alt="Image" src="https://github.com/user-attachments/assets/d71cbfed-fc44-4658-970b-7d73f492a1f0" /> <img width="120" height="130" alt="image" src="https://github.com/user-attachments/assets/95cfd8d0-949a-4859-8892-aacf19e0c974" />
 
 <p align="center">
 $\color{#dec7ff}{itrapped\ kin}$
