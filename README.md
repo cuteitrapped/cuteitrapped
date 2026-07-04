@@ -8,5 +8,3 @@
 <img width="1000" height="155" alt="Image" src="https://github.com/user-attachments/assets/e7298f34-6429-4a33-ac3f-5b50838165bd" />
 <img width="1000" height="280" alt="image" src="https://github.com/user-attachments/assets/5e48a80c-e80b-4f01-85d9-2b2e65870602" />
 
-
-　  ️ 　 　     ️ ️    ️honestly not that active sorry
