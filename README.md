@@ -14,7 +14,7 @@ $\color{#dec7ff}{ussmp +}$  $\color{#dec7ff}{may\ madness\ focused}$
 $\color{#dec7ff}{multifandom}$
 
  <p align="center">
-  <img width="700" height="120" alt="image" src="https://github.com/user-attachments/assets/c8b98f88-c5e2-43a9-a6da-9ef4a61c9eec" />
+ <img width="40" height="40" alt="Image" src="https://github.com/user-attachments/assets/6213bbf3-86ec-4921-b195-0768009cf788" /><img width="700" height="120" alt="image" src="https://github.com/user-attachments/assets/c8b98f88-c5e2-43a9-a6da-9ef4a61c9eec" />
 
 
 <img width="1000" height="155" alt="Image" src="https://github.com/user-attachments/assets/e7298f34-6429-4a33-ac3f-5b50838165bd" />
