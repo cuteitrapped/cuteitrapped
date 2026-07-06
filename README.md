@@ -12,7 +12,10 @@ $\color{#dec7ff}{artist + writer}$
 $\color{#dec7ff}{ussmp +}$  $\color{#dec7ff}{may\ madness\ focused}$
  <p align="center">
 $\color{#dec7ff}{multifandom}$
-  
+
+ <p align="center">
+  <img width="800" height="120" alt="image" src="https://github.com/user-attachments/assets/c8b98f88-c5e2-43a9-a6da-9ef4a61c9eec" />
+
 
 <img width="1000" height="155" alt="Image" src="https://github.com/user-attachments/assets/e7298f34-6429-4a33-ac3f-5b50838165bd" />
 <img width="1000" height="280" alt="image" src="https://github.com/user-attachments/assets/5e48a80c-e80b-4f01-85d9-2b2e65870602" />
