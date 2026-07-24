@@ -9,7 +9,7 @@ $\color{#dec7ff}{itrapped\ kin}$
 <p align="center">
 $\color{#dec7ff}{artist + writer}$
 <p align="center">
-$\color{#dec7ff}{ussmp,\ deltarune +}$  $\color{#dec7ff}{may\ madness\ focused}$
+$\color{#dec7ff}{ussmp,\ deltarune +}$  $\color{#dec7ff}{may\ madness\ 2012\ focused}$
  <p align="center">
 $\color{#dec7ff}{multifandom}$
 
